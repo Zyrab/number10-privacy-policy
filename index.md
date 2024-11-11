@@ -47,7 +47,7 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-Email: zurakrua@gmail.com
+Email: zyrab.dev+numbero@gmail.com
 
 Conclusion
 
